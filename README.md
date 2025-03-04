@@ -2,7 +2,7 @@
 
 **`Engenheira de Software`**
 
-# 💻 Iris Mayane | Professora & Desenvolvedora  
+# 💻 Professora & Desenvolvedora  
 
 🚀 Apaixonada por tecnologia, ensino e inovação!  
 > _"A melhor maneira de aprender é ensinar!"_  
